@@ -10,9 +10,9 @@
 ![IMG_0705](https://user-images.githubusercontent.com/114507476/193714360-401a0a39-b03d-44d7-874f-4aad4ffb3a85.PNG)
 
 ## More facts!
-###
 - Teacup puppies can live longer than 15 years
 - The smallest teacup breeed is the teacup Chihuahua, which weighs under 6 pounds and is under 5 inches tall.
 - Teacup puppies need to eat up to 5 meals a day to maintain their energy. 
+
 ![IMG_0703](https://user-images.githubusercontent.com/114507476/193714372-1606aac9-2d58-4e4a-b8be-8d1c964714ef.PNG)
 ![IMG_0702](https://user-images.githubusercontent.com/114507476/193714379-24313a9f-ff42-482b-b435-e6cfcacfc1df.PNG)

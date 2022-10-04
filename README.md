@@ -1,4 +1,4 @@
-# **Teacup Puppies**
+# **TEACUP PUPPIES**
 
 ## Background Information
 ### Teacup puppies are considered less than 4 pounds and 17 inches tall. 

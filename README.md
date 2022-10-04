@@ -1,11 +1,11 @@
 # **TEACUP PUPPIES**
 
-## Background Information
+### Background Information
 Teacup puppies are considered less than 4 pounds and 17 inches tall. 
 ![IMG_0704](https://user-images.githubusercontent.com/114507476/193714349-e0847a7e-b6ca-4282-925f-77f3c226f6ff.PNG)
 
 
-## Breeds
+### Breeds
 A teacup puppies are a miniature version of a breed that's already small. There are only six true teacup breeds; teacup Chihuahua, teacup Maltese, teacup poodle, teacup Pomeranian, teacup Yorkie, and teacup Shih Tzu
 ![IMG_0705](https://user-images.githubusercontent.com/114507476/193714360-401a0a39-b03d-44d7-874f-4aad4ffb3a85.PNG)
 
